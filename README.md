@@ -24,6 +24,6 @@ Vous pouvez refuser ou modifier ce consentement à tout moment en accédant simp
 
 ## Contact
 
-Si vous avez des questions ou des préoccupations concernant notre politique de confidentialité, n'hésitez pas à nous contacter à l'adresse suivante : [tony.prioux@gmail.com](mailto:tony.prioux@gmail.com).
+Si vous avez des questions ou des préoccupations concernant notre politique de confidentialité, n'hésitez pas à nous contacter à l'adresse suivante : [redrevolutionapp@gmail.com](mailto:redrevolutionapp@gmail.com).
 
 Merci d'avoir choisi RedRevolution !
